@@ -33,7 +33,7 @@ based Enterprise Applications, and Telecom Billing Systems.
 https://shiny-kataifi-0c3e28.netlify.app/
 
 📫 Reach Me:
-your-email@example.com
+udayabhanubhanu59@gmail.com
 
 ---
 
